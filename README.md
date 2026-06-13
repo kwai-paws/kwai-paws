@@ -3,3 +3,6 @@ prof still a wip ! 🍥
  (⁠≧⁠▽⁠≦⁠) ! 🪽  !
    . , 🍥 yatta kin ! — ·.  🍭 !.
   ![image alt](https://github.com/kwai-paws/rei-gvn/blob/1686a4ce981a446a24fb728c2a6102accf535ddd/dc609ecc4023c96aa2d79147ede83d22.gif)
+
+  ![image alt](https://github.com/kwai-paws/rei-gvn/blob/5e63ced5ea00096d2e331d5c6ffe621f05d2e3e0/Untitled31_20260613104625.png)
+  ↑ 🪽 >.< ⁠^⁠･⁠ｪ⁠･⁠^ ! 🍭
